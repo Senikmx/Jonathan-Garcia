@@ -1,2 +1,0 @@
-# Jonathan-Garcia
-Final project 
